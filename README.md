@@ -1,0 +1,2 @@
+# trade
+for make money
